@@ -12,7 +12,8 @@ PREVIEW
 ![image](https://github.com/user-attachments/assets/3edb823f-6070-4a00-8a58-4a90d48e0bf7)
 
 DARK MODE PREVIEW
-![Uploading image.png…]()
+![image](https://github.com/user-attachments/assets/616f46d5-ef9d-48be-a937-a46ef9412726)
+
 
 
 
